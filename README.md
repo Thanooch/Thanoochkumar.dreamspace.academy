@@ -1,1 +1,1 @@
-# Thanoochkumar.dreamspace.academy
+# Thanooch.dreamspace.academy
